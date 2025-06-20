@@ -1,16 +1,30 @@
-## Hi there 👋
 
-<!--
-**caracacaonumber1fan/caracacaonumber1fan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![](https://i.postimg.cc/YC4gtmk9/z66qxu555555234243333333-flipped-1-flipped.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# $${\color{#c1b8b3}IMPORTANT!!!!!!!}$$
+<div style="text-align: center;">
+<p>$${\color{#5d595a}· · ─────── ·𖥸· ─────── · ·}$$ㅤ
+$${\color{#c1b8b3}Beforeㅤyouㅤproceed,ㅤpleaseㅤbeㅤnotedㅤthatㅤiㅤamㅤpro-fic,ㅤandㅤiㅤamㅤanㅤadvocateㅤforㅤfreeㅤAO3}$$
+$${\color{#c1b8b3}andㅤpro-ficㅤ/ㅤdark-ficㅤspaces.}$$ㅤ
+$${\color{red}Ifㅤyouㅤareㅤfakeㅤ/ㅤwannabeㅤ'proshipper',ㅤnotㅤobeyingㅤrulesㅤofㅤproshippingㅤ-ㅤyouㅤareㅤdisgusting.}$$
+$${\color{red}Youㅤmakeㅤusㅤallㅤlookㅤbad.ㅤDoㅤbetter.}$$ㅤ
+$${\color{red}Transㅤpeople/ANTISㅤ-ㅤinstantㅤDNI.ㅤIㅤdon'tㅤhateㅤyou,ㅤiㅤamㅤjustㅤuncomfortableㅤfromㅤyou.}$$ㅤ
+$${\color{#c1b8b3}Also,ㅤiㅤliveㅤinㅤextremlyㅤhomophobicㅤfamily,ㅤsoㅤifㅤyouㅤareㅤhomosexualㅤ-ㅤit'sㅤfine,ㅤiㅤstillㅤacceptㅤyou.}$$
+$${\color{#c1b8b3}ButㅤpleaseㅤbeㅤmindfulㅤthatㅤIㅤwon'tㅤunderstandㅤaㅤlotㅤofㅤterminologyㅤ/ㅤconsiderㅤitㅤstrange.}$$ㅤ
+$${\color{#836654}( ˶°ㅁ°)ㅤ!!ㅤIㅤhopeㅤthatㅤyouㅤwillㅤbeㅤrespectfulㅤtoㅤme,ㅤsoㅤiㅤcanㅤbeㅤrespectfulㅤbackㅤtoㅤyou.}$$ㅤ
+$${\color{#5d595a}· · ─────── ·𖥸· ─────── · ·}$$ㅤ
+$${\color{#c1b8b3}>> Sheㅤ𓏵ㅤHer!ㅤノㅤRUㅤ𓏵ㅤENGㅤノㅤ18 y.o.ㅤノㅤmonogamous,ㅤmarried !!ㅤノㅤneurotypical,ㅤmentallyㅤwell !!<<}$$ㅤ
+$${\color{#836654}BYI:ㅤIㅤamㅤaㅤratherㅤsilentㅤperson,ㅤandㅤmightㅤtakeㅤmyㅤtimeㅤtoㅤrespond.}$$
+$${\color{#836654}Also,ㅤiㅤhaveㅤweirdㅤsenseㅤofㅤhumorㅤandㅤveryㅤspecificㅤviewsㅤonㅤlife.}$$ㅤ
+$${\color{#c1b8b3}>>Cㅤ+ㅤHㅤanytimeㅤinㅤPonyㅤTown,ㅤifㅤiㅤamㅤnotㅤwithㅤfriends!!!ㅤ(˶◜ᵕ◝˶)/<<}$$ㅤ
+$${\color{#5d595a}straightㅤshipsㅤheh,,,,,ㅤiㅤloveㅤthemㅤsm,,,}$$</p>
+<img src="https://i.postimg.cc/63DGJgS7/79808c40b65642c19485d29c85cab9d156345435865.png" width="400" height="400" /><img src="https://i.postimg.cc/TPsTfpdR/187aae3ada668601ca69c9424dca7eee4342123.png" width="210" height="210" /><img src="https://i.postimg.cc/Z5cdfM5F/79808c40b65642c19485d29c85cab9d123143.png" width="400" height="400" /> </div> 
+<p>$${\color{#c1b8b3}caracacao,,,ㅤsaveㅤmeㅤcaracacao,,,,ㅤoldㅤmanㅤandㅤhisㅤtomboyyyㅤwifeㅤueehhh,,,}$$</p>
+
+[click for my rentry!!](https://rentry.co/caracacaolover) ノ strawpage coming soon!! ノ [click for my AO3!!](https://archiveofourown.org/users/user8276801074) ノ [click for my tg!!](https://t.me/user8276801074) ノ [click for my dc!!](https://discordapp.com/users/868177292520734730)
+
+<p>$${\color{#5d595a}· · ─────── ·𖥸· ─────── · ·}$$ㅤ
+$${\color{#836654}.✧˚ㅤGoodbye!ㅤIㅤhopeㅤweㅤwillㅤmeetㅤagainㅤsoon!ㅤ(˶◜ᵕ◝˶)/ㅤ˚✧.}$$</p>
+
+![](https://i.postimg.cc/qBb5nLKN/z66qxu555555234243333333-flipped.png)
