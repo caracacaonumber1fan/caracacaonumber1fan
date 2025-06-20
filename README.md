@@ -19,7 +19,7 @@ $${\color{#836654}BYI:ㅤIㅤamㅤaㅤratherㅤsilentㅤperson,ㅤandㅤmightㅤ
 $${\color{#836654}Also,ㅤiㅤhaveㅤweirdㅤsenseㅤofㅤhumorㅤandㅤveryㅤspecificㅤviewsㅤonㅤlife.}$$ㅤ
 $${\color{#c1b8b3}>>Cㅤ+ㅤHㅤanytimeㅤinㅤPonyㅤTown,ㅤifㅤiㅤamㅤnotㅤwithㅤfriends!!!ㅤ(˶◜ᵕ◝˶)/<<}$$ㅤ
 $${\color{#5d595a}straightㅤshipsㅤheh,,,,,ㅤiㅤloveㅤthemㅤsm,,,}$$</p>
-<img src="https://i.postimg.cc/63DGJgS7/79808c40b65642c19485d29c85cab9d156345435865.png" width="400" height="400" /><img src="https://i.postimg.cc/TPsTfpdR/187aae3ada668601ca69c9424dca7eee4342123.png" width="210" height="210" /><img src="https://i.postimg.cc/Z5cdfM5F/79808c40b65642c19485d29c85cab9d123143.png" width="400" height="400" /> </div> 
+<img src="https://i.postimg.cc/63DGJgS7/79808c40b65642c19485d29c85cab9d156345435865.png" width="200" height="200" /><img src="https://i.postimg.cc/TPsTfpdR/187aae3ada668601ca69c9424dca7eee4342123.png" width="100" height="100" /><img src="https://i.postimg.cc/Z5cdfM5F/79808c40b65642c19485d29c85cab9d123143.png" width="200" height="200" /> </div> 
 <p>$${\color{#c1b8b3}caracacao,,,ㅤsaveㅤmeㅤcaracacao,,,,ㅤoldㅤmanㅤandㅤhisㅤtomboyyyㅤwifeㅤueehhh,,,}$$</p>
 
 [click for my rentry!!](https://rentry.co/caracacaolover) ノ strawpage coming soon!! ノ [click for my AO3!!](https://archiveofourown.org/users/user8276801074) ノ [click for my tg!!](https://t.me/user8276801074) ノ [click for my dc!!](https://discordapp.com/users/868177292520734730)
