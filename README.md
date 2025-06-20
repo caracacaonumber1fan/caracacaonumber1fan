@@ -10,9 +10,9 @@ $${\color{#c1b8b3}andㅤpro-ficㅤ/ㅤdark-ficㅤspaces.}$$ㅤ
 $${\color{red}Ifㅤyouㅤareㅤfakeㅤ/ㅤwannabeㅤ'proshipper',ㅤnotㅤobeyingㅤrulesㅤofㅤproshippingㅤ-ㅤyouㅤareㅤdisgusting.}$$
 $${\color{red}Youㅤmakeㅤusㅤallㅤlookㅤbad.ㅤDoㅤbetter.}$$ㅤ
 $${\color{red}Transㅤpeople/ANTISㅤ-ㅤinstantㅤDNI.ㅤIㅤdon'tㅤhateㅤyou,ㅤiㅤamㅤjustㅤuncomfortableㅤfromㅤyou.}$$ㅤ
-$${\color{#c1b8b3}Iㅤliveㅤinㅤextremlyㅤright-wingㅤfamily,ㅤsoㅤifㅤyouㅤareㅤhomosexual/mentallyㅤillㅤ-ㅤit'sㅤfine,ㅤiㅤstillㅤacceptㅤyou.}$$
+$${\color{#c1b8b3}Iㅤliveㅤinㅤextremlyㅤright-wingㅤfamily,ㅤsoㅤifㅤyouㅤareㅤLGBT/mentallyㅤillㅤ-ㅤit'sㅤfine,ㅤiㅤstillㅤacceptㅤyou.}$$
 $${\color{#c1b8b3}ButㅤpleaseㅤbeㅤmindfulㅤthatㅤIㅤwon'tㅤunderstandㅤaㅤlotㅤofㅤterminologyㅤ/ㅤconsiderㅤitㅤstrange.}$$
-$${\color{#c1b8b3}I'llㅤtryㅤmyㅤbestㅤtoㅤunderstandㅤyouㅤandㅤwon'tㅤeverㅤjudge!!(ᵕ—ᴗ—)}$$ㅤ
+$${\color{#c1b8b3}I'llㅤtryㅤmyㅤbestㅤtoㅤunderstandㅤyou,ㅤiㅤreallyㅤwill...(ᵕ—ᴗ—)}$$ㅤ
 $${\color{#836654}( ˶°ㅁ°)ㅤ!!ㅤIㅤhopeㅤthatㅤyouㅤwillㅤbeㅤrespectfulㅤtoㅤme,ㅤsoㅤiㅤcanㅤbeㅤrespectfulㅤbackㅤtoㅤyou.}$$ㅤ
 $${\color{#5d595a}· · ─────── ·𖥸· ─────── · ·}$$ㅤ
 $${\color{#c1b8b3}>> Sheㅤ𓏵ㅤHer!ㅤノㅤRUㅤ𓏵ㅤENGㅤノㅤ18 y.o.ㅤノㅤmonogamous,ㅤmarried !!ㅤノㅤneurotypical,ㅤmentallyㅤwell !!<<}$$ㅤ
